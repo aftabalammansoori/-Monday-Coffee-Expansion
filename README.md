@@ -1,1 +1,1 @@
-# -Monday-Coffee-Expansion
+# Monday Coffee Expansion
